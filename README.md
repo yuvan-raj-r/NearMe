@@ -216,7 +216,7 @@ Positioned in a prime location, Spectrum PVR is a go to destination for entertai
 
 ## OUTPUT
 1.
-![alt text](<Screenshot 2025-11-28 112641.png>)
+![alt text](<Screenshot 2025-12-01 080252.png>)
 
 2.
 ![alt text](pic1.png)
